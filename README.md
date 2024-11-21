@@ -6,7 +6,12 @@ las tablitas de nava uwu
 - ![image](https://github.com/user-attachments/assets/2484fe50-0058-42a5-9008-3f6036ab2109)
 
 - Clientes:
-- 
+- ![image](https://github.com/user-attachments/assets/29d4112a-2134-4c66-a5dd-7bbbb838bfce)
+- ![image](https://github.com/user-attachments/assets/59f901e2-ce5f-4224-9a3b-179de440d739)
+- ![image](https://github.com/user-attachments/assets/e9a7977a-64e9-4e40-82ad-d337811d189d)
+
+
+
 
 
 
