@@ -1,5 +1,5 @@
 # Tablas_Libreria_Nava
-las tablitas de nava uwu
+las tablitas de nava uwu 🌺
 # Proveedores:
 - ![image](https://github.com/user-attachments/assets/167abd1e-1ee0-401e-9341-368f3aced852)
 - ![image](https://github.com/user-attachments/assets/989133c3-c5c5-4c5e-8eb0-13d655299348)
@@ -26,7 +26,12 @@ las tablitas de nava uwu
 - ![image](https://github.com/user-attachments/assets/73a1c0f9-827a-4bd4-ace1-c5fbc5cd25c9)
 
 # Ventas:
-- 
+- ![image](https://github.com/user-attachments/assets/79b0ca85-781f-489a-8145-ed77ddbea4db)
+- ![image](https://github.com/user-attachments/assets/390ca005-9d79-4908-b920-3c603ddad603)
+- ![image](https://github.com/user-attachments/assets/8fc4babb-d924-423c-8a79-018abf04c6e2)
+
+
+
 
 
 
